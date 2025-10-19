@@ -1,5 +1,5 @@
 ---
-title: "Sexual Minority Event "Jeju Queer Pride" Being held at Ongmun Rotary on November 1st"
+title: Sexual Minority Event 'Jeju Queer Pride' Being held at Ongmun Rotary on November 1st"
 excerpt: "At the Jeju Provincial Council resident's Cafe in the morning, Jeju Queer Pride Organizing Comitte is holding a press conference about holding the sixth Jeju Queer Pride event."
 ---
 
